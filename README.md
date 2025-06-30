@@ -32,7 +32,7 @@ I'm an adventurous and curious tech enthusiast who loves building cool stuff –
 - 💼 LinkedIn: [bitchiko-gularashvili](https://www.linkedin.com/in/bitchiko-gularashvili-90570a25a/)  
 - 🐙 GitHub: [@bitchikogulara](https://github.com/bitchikogulara)  
 - 📘 Facebook: [bichiko.gularashvili](https://www.facebook.com/bichiko.gularashvili)  
-- 📸 Instagram: [@instagram](https://www.instagram.com/?hl=en&__coig_login=1)  
+- 📸 Instagram: [@instagram](https://www.instagram.com/gularashvilibichiko)
 - 🎮 Discord: `gulara#0234`
 
 ---
